@@ -22,7 +22,7 @@ Atlanta, GA
 
 ## Honors
 
-**President’s List** _(Aug 2024; May 2024)_  
+**President’s List** _(Aug 2024 - Dec 2024; Jan 2025 - May 2025)_  
 
 *   Earned a 4.00 semester GPA while enrolled full‑time  
       
